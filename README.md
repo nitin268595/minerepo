@@ -1,2 +1,0 @@
-# BYE for now, PEACE, TAKE CARE
-# THANK YOU
